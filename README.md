@@ -1,4 +1,4 @@
-<img src="https://mograph.video/2HwFiEL" width="45%"  align="right">
+<img src="https://mograph.video/2HwFiEL](https://media.giphy.com/media/26tn33aiTi1jkl6H6/giphy.gif)" width="45%"  align="right">
 
 <!-- ![RigidGlumEnglishpointer-size_restricted](https://user-images.githubusercontent.com/96388454/182561218-55cbaa5e-d35f-4ca8-a85e-9588ce096be5.gif) -->
 
