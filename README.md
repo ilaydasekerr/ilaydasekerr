@@ -1,4 +1,4 @@
-<img src="https://user-images.githubusercontent.com/96388454/182560504-b6a596c5-ca6e-4360-a3db-a9b70d36968c.gif" width="45%"  align="right">
+<img src="https://mograph.video/2HwFiEL" width="45%"  align="right">
 
 <!-- ![RigidGlumEnglishpointer-size_restricted](https://user-images.githubusercontent.com/96388454/182561218-55cbaa5e-d35f-4ca8-a85e-9588ce096be5.gif) -->
 
